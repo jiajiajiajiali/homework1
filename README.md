@@ -1,2 +1,2 @@
-This is my first homeword
+This is my first homework,
 there is maybe no mistake
